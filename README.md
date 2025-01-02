@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @caiopardim
-- 👀 I’m interested in  programar
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate 
 - 📫 How to reach me cfpardim@gmail.com
